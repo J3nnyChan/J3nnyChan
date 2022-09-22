@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @J3nnyChan
+- 👋 Hi, I’m Jenny Chan(@J3nnyChan)
 - 👀 I’m interested in wine,fashion and not to mention programming!
 - 🌱 I’m currently learning in programming language and want to switch job.
 - 💞️ I’m looking to collaborate on ...
